@@ -1,2 +1,6 @@
-# Color_flipper
+# Heeeeelllooooo World Mahdi IS here ;)
 this app is a random and default color picker .... hope you enjoy ;)
+
+if you had some new idea i will be so glad too see it :) ......
+
+... peace ...
